@@ -1,5 +1,5 @@
 Bodhisattva of Compassion
-practising deeply the Perfection of Transcendental Wisdom 
+practising deeply the Perfection of Transcendental Wisdom
 realised that all five mind-aggregates are empty
 and is saved from all suffering and distress.
 
